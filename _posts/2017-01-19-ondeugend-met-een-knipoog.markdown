@@ -2,7 +2,7 @@
 layout: post
 title:  "ondeugend met een knipoog"
 date:   2017-01-19 12:00:01 +0100
-categories: carina blogs
+categories: carina blogs 
 author: Carina Noordeloos
 permalink: /:categories/:title.html
 ---
