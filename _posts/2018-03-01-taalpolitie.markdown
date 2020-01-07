@@ -52,12 +52,12 @@ Voor de vijfde keer in korte tijd las ik het verfrommelde briefje dat ik in mijn
 De taxichauffeur, een kleine gezette man, stapte uit en opende de autodeur.
 
 Bloemenkiosken, fonteinen en terrassen flitsten langs. Ik probeerde de omgeving in me op te nemen. Het wemelde van de toeristen, tekenaars, fakirs, dansers, levende standbeelden, goochelaars en natuurlijk de lokale bevolking. Hét beeld van de Ramblas.
-
 </div>
-
+<br>
 <div style="font-size:80%;font-style:italic">
 ‘Suus, je bent helemaal krankjorum! Een gezellig weekje met een onbekende vent? Lekker snugger!’ Stella ging altijd meteen zo tekeer, ze kon nooit iets normaal zeggen. Een goede vriendin zou naar je luisteren, maar zij kon dat niet. Nooit. Ik haatte dat. Maar, ze kon van mij de boom in, ik had mijn zinnen er nu eenmaal op gezet, finito!
 </div>
+<br>
 
 wordt vervolgd…
 
