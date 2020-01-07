@@ -7,7 +7,7 @@ author: Carina Noordeloos
 permalink: /:categories/:title.html
 ---
 
-‘Dan zie ik je straks rond twee uur in het Vondelpark, bij ’t Blauwe Theehuis. Ach, dat vind je wel, kan niet missen!’ Daarna hing ze op. Lotte klonk gehaast en opgewonden. Het had even geduurd en kostte wat overtuigingskracht, maar na wat tegenstribbelen had in ingestemd. Ze moest me spreken!
+‘Dan zie ik je straks rond twee uur in het Vondelpark, bij ’t Blauwe Theehuis. Ach, dat vind je wel, kan niet missen!’ Daarna hing ze op. Lotte klonk gehaast en opgewonden. Het had even geduurd en kostte wat overtuigingskracht, maar na wat tegenstribbelen had ik ingestemd. Ze moest me spreken!
 
 <div style="margin:0 10px 10px 0"><img src="/assets/digi dating 1.jpg"/></div>
 
