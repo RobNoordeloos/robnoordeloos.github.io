@@ -8,7 +8,7 @@ permalink: /:categories/:title.html
 ---
 We woonden net een jaar samen. Die sleutel van ons eigen huis aan mijn sleutelbos, ik vond het nog steeds leuk staan. Glimlachend maakte ik de voordeur open. Mijn middag was nuttig besteed aan koopjesjacht, ik had de hele stad doorkruist. Het resultaat was drie tassen met kleding. Ik liep de trap op naar de slaapkamer, kieperde mijn aanwinsten op bed en maakte een aantal bij elkaar passende setjes. Tevreden en blij keek ik er naar. Ja, morgenavond zou ik dat blauwe stelletje aantrekken. Natuurlijk had ik ook wat voor hem gekocht. Daar zou ik hem tijdens het avondeten mee verrassen. Dat begon ik even later vrolijk fluitend klaar te maken.
 
-<div style="margin:0 10px 10px 0"><img src="/assets/bewust gekozen 1.jpg"/></div>
+<div style="margin:0 10px 10px 0"><img src="/assets/bewust gekozen 1.png"/></div>
 
 <h2> verkiezingen </h2>
 
@@ -34,7 +34,7 @@ Het is half zeven, we zitten met z’n tweeën aan tafel. Ik heb zijn lievelings
 
 Ik moet meteen spontaan naar de wc, maar niet heus. Ik ren naar boven, naar de slaapkamer, grijp alle kleding op het bed bij elkaar en prop het terug in de tassen. Ik stop alles zo ver mogelijk weg achter in de schuifkast, op een plek waar hij toch nooit komt.
 
-<div style="margin:0 10px 10px 0"><img src="/assets/bewust gekozen 3.jpg"/></div>
+<div style="margin:0 10px 10px 0"><img src="/assets/bewust gekozen 3.png"/></div>
 
 Gelukkig waren de meeste van onze uitgaven nog niet digitaal te achterhalen en toen was internet sowieso nog geen gemeengoed, dus viel niet alles meteen te controleren. Geen online bankieren, maar één keer per maand een afschrift. Ook toen al vond ik het niet leuk om alles te moeten verantwoorden. Gelukkig leerde ik snel van een wat oudere dame, die vóór mij in de winkel afrekende bij de kassa, en tegen de verkoopster zei ‘dat je ze niet wijzer moet maken dan nodig is’. Ze betaalde namelijk de helft van haar aankopen met haar creditcard en de andere helft contant. Na afloop gaf ze mij een sneaky knipoog. Ach... werkt dat zo? Ik deed daarna hetzelfde: de helft kaart, de helft cash. En ook al zou hij de uitgaven na afloop zien op het afschrift (en tegenwoordig op het internet), dan deed het maar half zoveel pijn.
 
