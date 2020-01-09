@@ -1,48 +1,51 @@
 ---
 layout: post
-title:  "groot denken"
-date:   2018-05-01 12:00:01 +0100
+title:  "plankenkoorst"
+date:   2018-06-01 12:00:01 +0100
 categories: carina blogs
 author: Carina Noordeloos
 permalink: /:categories/:title.html
 ---
-<div style="margin:0 10px 10px 0"><img src="/assets/groot denken 1.jpg"/></div>
+<div style="margin:0 10px 10px 0"><img src="/assets/plankenkoorst 1.jpg"/></div>
 
-‘Vertel nog eens mam…!’
+‘Het klinkt gek, maar doe alsof je in je lingerie staat. Voel je kwetsbaar!’
+Doe normaal, meen je dat nou echt?
+‘Als ik dit teken geef, val jij in.’ Hij maakt met zijn hand een groot gebaar in de lucht.
 
-We zitten met z’n zessen aan tafel, aan het avondeten, er heerst een drukke en uitgelaten sfeer. Ik geniet daar altijd enorm van, niet dat ze het altijd lekker vinden wat ik voorschotel, maar omdat het er gewoon niet meer zo vaak van komt met al die volle agenda’s. De een komt pas om zeven uur thuis van school, de ander vliegt om kwart voor zeven de deur uit om te trainen of is nog laat aan het werk en zo kan ik wel doorgaan.
+Het is al de zesde keer dat ik het probeer, maar het lukt me nog steeds niet. Het juiste gevoel komt maar niet. Ik kom niet in de juiste stemming, ik ben in gedachten met teveel dingen bezig.
+En weg is hij, de deur valt achter hem dicht en laat mij vertwijfeld achter. Nog voordat ik kan besluiten of ik hier wel mee door wil gaan staat hij alweer voor mijn neus, met een fles rode wijn. Hij schenkt mijn glas, waar water in zat, vol met wijn. ‘Hier. Drink op, daar word je wat losser van.’ Zwijgend pak ik het glas aan en neem een paar flinke slokken.
 
-Ik vertelde van hoe het allemaal in zijn werk ging toen ze nog peuter waren en er nog niet zoiets bestond als internet shoppen.
+Twintig minuten later proberen we het nog maar eens een keer. Onder de gedimde lampen doet de wijn langzaam z’n werk. Daar sta ik, in mijn rode lingerie, een beetje kwetsbaar te wezen, bij de microfoon. Zijn seintje volgt, de geluidsknoppen worden opengezet. Een lichtflits als van onweer vult de ruimte, alle ruis in mijn hoofd is weg. Het gaat top!
 
-‘Mam, mogen we dat nog een keer? Dat “groot denken”?’
+Al wekenlang ben ik aan het repeteren om een drietal liedjes onder de knie te krijgen, met een optreden in het verschiet. Samen met een handvol muzikanten geven we een opvoering voor een klein en intiem publiek, op uitnodiging. Dat wordt dan de eerste keer dat ik mezelf op piano zal begeleiden. Het moet dus goed zijn. Zingen kan ik ook wel een beetje, het gaat om de combi zullen we maar zeggen. Mijn vingers glijden moeiteloos over de toetsen van de piano en de woorden kan ik intussen zonder bladmuziek zingen. Er ontbreekt echter wel iets. Ik kan het juiste gevoel, de gevoelige pianosnaar, niet vinden. Ik denk terug aan de opnamestudio en aan de opnames, aan wijn en lingerie, aan kwetsbaar wezen. Maar om elke keer maar weer een fles wijn naar binnen te gieten en beschonken de bühne op te stappen lijkt me niet bepaald een goed idee. Eén van de nummers, The Rose van Bette Midler, zingen we met z’n tweeën.
 
-Ze waren nog erg jong, hun leeftijden varieerden van anderhalf tot vijf, en de decembermaand brak aan. Sinterklaas was op televisie geweest en had gezegd dat alle kinderen hun schoentje mochten zetten. Zoals elk jaar, maar dat even terzijde. Mij werd gevraagd om wortels te kopen voor het paard. Die werden ’s avonds vergezeld van een bakje water bij de schoentjes neergezet, die op hun beurt weer waren gevuld met verlanglijstjes en tekeningen. Overdag bladerden mijn kinderen verwoed en aandachtig (voorzien van de nodige oeh’s en ah’s, en om het hardst roepend: “Die wil ik”!) door de talloze speelgoedblaadjes, die massaal door onze brievenbus waren gepropt. Plaatjes werden uitgeknipt dan wel gescheurd en op de verlanglijstjes geplakt. Die A4-tjes maakten het winkelen voor de Sint een stuk gemakkelijker. Deze keer kwam er echter een uitdaging bij. Ik had niks in huis, geen enkel kadootje, had nog niets geregeld. De tijd was simpelweg door mijn vingers geglipt. Ze geloofden alledrie nog, fantasie en werkelijkheid liepen nog lekker door elkaar, dus dit vroeg om een creatieve oplossing. Maar ik had nog maar twee weken…
+<div style="margin:0 10px 10px 0"><img src="/assets/plankenkoorst 2.jpg"/></div>
 
-Woensdagmiddag. Geen school. De middelste had ik van de crèche gehaald, de oudste van de kleuterschool, de jongste ging mee in de buggy. Doordeweeks stond ik er alleen voor, mijn man was vanwege zijn werk in het buitenland, daar kon ik dus geen beroep op doen. Er restten nog twee weekenden voor het grote feest, waarvan er één al opgeslokt werd door Sinterklaas die dan in het dorp zou arriveren. Krap, krap, krap!
+Ik pak de bladmuziek erbij en kijk of ik de woorden kan koppelen aan gebeurtenissen uit mijn eigen leven.
 
-<div style="margin:0 10px 10px 0"><img src="/assets/groot denken 2.jpg"/></div>
+<i>Some say love, it is a river that drowns the tender reed<br>
+Some say love, it is a razor that leaves your soul to bleed<br>
+Some say love, it is a hunger an endless aching need<br>
+I say love, it is a flower and you it's only seed<br><br>
+It's the heart afraid of breaking that never learns to dance<br>
+It's the dream afraid of waking that never takes the chance<br>
+It's the one who won't be taken who cannot seem to give<br>
+And the soul afraid of dying that never learns to live<br><br>
+When the night has been too lonely and the road has been too long<br>
+And you think that love is only for the lucky and the strong<br>
+Just remember in the winter far beneath the bitter snow<br>
+Lies the seed that with the sun's love in the spring becomes the rose<br></i>
 
-Na het middageten ging ik met de kinderen naar de stad, ze moesten allemaal mee. Snel vond ik een parkeerplek op niet al te grote afstand van de winkelstraat. Het was nogal druk in de stad, pieten liepen tussen de mensen door en deelden her en der pepernoten uit. De volgeplakte verlanglijstjes lagen verborgen onder in mijn tas. Met zijn vieren stapten we de meest magische winkel voor jonge mensjes binnen, de grootste speelgoedzaak van de stad. Zodra wij binnen waren vlogen ze elk een kant op. Precies zoals ik had gehoopt. Dat gaf mij even de tijd en de gelegenheid om te doen wat ik van plan was. Met de lijstjes in mijn hand liep ik op een van de verkopers af en vroeg of zij mij kon helpen. Ik had alles wat ik wilde kopen duidelijk omcirkeld, zou zij dat voor mij bij elkaar willen pakken? Maar op hetzelfde moment ging haar handtelefoon over. Ze moest onmiddelijk naar het magazijn. Met een ‘sorry mevrouw’ en ‘ik had u graag willen helpen, maar het is een gekkenhuis’, bleef ik met de briefjes in mijn hand achter. Ik keek om me heen en zocht de volgende verkoper, maar het was te druk, iedereen was bezig. Denk, denk. Dan moest het maar anders.
+Hier en daar maak ik aantekeningen en besluit om alles een paar dagen weg te leggen, even te laten rusten.
 
-<div style="margin:0 10px 10px 0"><img src="/assets/groot denken 3.jpg"/></div>
+De volgende dag ligt er een envelop op mijn deurmat. Ik open deze en schrik van de inhoud. De vader van Patricia, één van mijn beste vriendinnen, is overleden en de begrafenis zal eind die week plaatsvinden. Geen twijfel mogelijk, daar moet ik heen, ik moet er voor haar zijn. Het is aan de andere kant van het land, geen idee of ik dan op tijd terug ben voor het optreden dat later op diezelfde dag plaatsvindt. Ik bel de organisator en leg hem het voorval voor en vraag of mijn optreden aan het eind van de avond kan worden ingepland.
 
-Ik raapte mijn kinderen bijeen en knielde neer zodat ik op met ze op gelijke ooghoogte kwam, en zei samenzweerderig, ‘Sinterklaas heeft me net gebeld…’. Intussen keek ik ze een voor een aan. Ik had direct alle aandacht. Wat een magisch woord was dat toch, SINTERKLAAS. ‘Hij vroeg of jullie hem dit jaar willen helpen. Want er zijn een aantal pieten ziek geworden, de kado-uitzoek-pieten.’ Ik kuchte en keek ze aan, geloofden ze me nog? Gespannen keken ze terug.
+Het is een droevig maar mooi en eervol afscheid. Het laatste liedje dat tijdens de bijeenkomst wordt afgespeeld is The Rose van Bette Midler, vertaald naar het Nederlands. Dat raakt me meer dan me lief is, zo mooi.Toeval? Voordat ik weer in de auto stap geef ik Patries nog een innige knuffel, zoals vriendinnen dat doen.
 
-‘Jullie mogen daarom in deze winkel kadootjes uitzoeken die jullie graag zouden willen hebben. Dan hoeft Sinterklaas die kadootjes straks alleen nog maar op te halen’, zei ik er snel bij. Ik was nog niet uitgesproken of ze sprongen uitgelaten in het rond, gejuich natuurlijk, geen twijfel mogelijk, zij gingen de Sint een handje helpen!
+<div style="margin:0 10px 10px 0"><img src="/assets/plankenkoorst 3.jpg"/></div>
 
-Ik pakte drie blauwe boodschappenkarretjes, die met die wieltjes eronder, en daar gingen ze. Wat een feest!
+Op de weg terug geef ik hier en daar iets meer gas, want ik wil mijn maatje met wie ik de nummers heb voorbereid niet in de steek laten. Ruim op tijd arriveer ik bij het zaaltje waar de optredens plaatsvinden. Haast ongemerkt schuifel ik naar binnen en maak hier en daar oogcontact. Nog geen kwartier later neem ik plaats achter de piano. Eerst een aantal instrumentale nummers, mijn vingers trillen een beetje maar weten de juiste toetsen gelukkig te vinden. Daarna The Rose, het begin is lekker. En dan... Bij het tweede refrein lijkt er een snik in mijn stem te komen, ik voel dat ik de controle verlies, ik schiet vol en dan biggelen de tranen over mijn wangen. Ik speel door, zing door, de woorden snijden dwars door mijn ziel. Tussen de tranen door kijk ik mijn maatje aan. Hij knikt bemoedigend, ik ga door tot de laatste wegstervende klanken. Dan sta ik op en knik bescheiden naar het publiek, maar ik sta helemaal te shaken en verlies de controle over mijn lichaam. Wat volgt is een lang en indrukwekkend applaus. Hand in hand lopen we tussen het publiek door naar achteren en nemen plaats op onze stoelen, waar ik nog zeker tien minuten lang mijn betraande ogen stijf dichthoud. Straks misschien nog een laatste glas rode wijn, maar dan vanwege een andere, veel diepere emotie.
 
-‘Nee schat, je moet groot denken’, zei ik. Twee grote blauwe ogen keken mij vragend aan. Voorzichtig pakte ik die kleine prulletjes uit haar winkelwagentje, waaronder een scheetzak en een bellenblaas. Mijn hemel, wat een zooi. Dat is bijna al kapot als je het uitpakt. ‘Dit zijn kleine kadootjes. Je mag iets uitzoeken, iets groter, iets wat je echt altijd al wilde hebben’, probeerde ik nog een keer en daar ging ze weer. ‘Groot’, hoorde ik haar mompelen.
-
-<div style="margin:0 10px 10px 0"><img src="/assets/groot denken 4.jpg"/></div>
-
-De andere twee hadden er beduidend minder moeite mee, radio’s, speelgoedhuizen en een keuken werden aangesleept. De laatste, de kleindenkende lieverd, kwam uiteindelijk met een pratende pop aangelopen.<i> Ik ben Ernie, ik ben heel moe, ik moet een slaapje doen.</i> En na het slaapje zei hij: <i>ik voel me fantastisch…</i> En zo voelde ik mij ook!
-
-Ze hebben wel een uur door de speelgoedwinkel gelopen. Bepakt en bezakt bracht ik tenslotte de buit naar de kassa.
-
-‘Jullie pakken het toch wel in hè…?’, zei ik aarzelend. Het winkelmeisje dat naar het magazijn was geroepen kwam er juist bij staan, keek me aan en zei, ‘Dat wordt mijn klusje.’ En gaf mij een knipoog.
-
-Nu liep ik samen met de kinderen nog een keer door de winkel, ze mochten van mij een kadootje uitzoeken, een klein kadootje, omdat ze Sint zo goed geholpen hadden. Dus liepen we richting de scheetzakken en bellenblazers. Tegen de tijd dat ze eindelijk hun keuze hadden gemaakt, waren de kadootjes voor het Sinterklaasfeest ingepakt. Ik rekende af, hing de tassen aan de buggie en ging tevreden naar huis.
-<b>I love it when a plan comes together.</b>
+<div style="margin:0 10px 10px 0"><img src="/assets/plankenkoorst 4.jpg"/></div>
 
 <div style="margin:0 10px 10px 0"><img src="/assets/Carina - profiel 2019.jpg" alt="Carina Noordeloos" width="100"/></div>
