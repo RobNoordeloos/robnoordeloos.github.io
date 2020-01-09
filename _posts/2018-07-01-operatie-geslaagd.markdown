@@ -20,7 +20,7 @@ Lichte paniek maakte zich van mij meester. Ik rende naar boven en probeerde te r
 
 Jaren werkte mijn man in het buitenland, al die tijd kon ik op die manier mijn huis, ons huis (her)inrichten zoals ik dat zelf wilde. Wie zei dat ook alweer? Ieder nadeel heeft zijn voordeel ;) Zo gaf ik de gang een complete metamorfose, zorgde hier en daar voor een nieuw behangetje of sausde muren in allerlei kleuren. Zo onderwierp ik ook onze keuken een keer aan een opknapbeurt. Alles plakte ik af met plastic, de vloer voorzag ik van kranten, zodat de verf alleen zou beklijven op de plekken die het nodig hadden. De keuken veranderde van sereen wit naar betongrijs. Na een aantal uren gedroogd te hebben kon er een tweede laag overheen. Deze laag zou er voor zorgen dat ik de muur, als die vies werd, gemakkelijk kon afnemen met een sopje, zonder dat de hele muur door en door nat zou worden. Het was een secuur klusje, echter de grijze muur veranderde in een zilveren muur, er bleek achteraf nogal wat parelmoer te zijn verwerkt in het goedje. Alsof ik aluminiumfolie op de muur had geplakt, ik kon wel janken. Een moeder die aan het eind van de middag haar kind kwam ophalen, dat speelde met een van onze kids, deed ook nog even een duit in het zakje. Ze had meteen naar huis kunnen gaan, maar nee, met Sofietje aan haar hand, bekeek ze de boel aandachtig.
 
-<div style="margin:0 10px 10px 0"><img src="/assets/operatie geslaagd 2.jpg"/></div>
+<div style="margin:0 10px 10px 0"><img src="/assets/operatie geslaagd 2.jpeg"/></div>
 
 ‘Dat heeft niemand,’zei ze. En ik moet me erg vergist hebben, maar zag toch echt een sarcastische glimlach om haar mond verschijnen.
 
