@@ -36,12 +36,19 @@ Ik pakte drie blauwe boodschappenkarretjes, die met die wieltjes eronder, en daa
 
 <div style="margin:0 10px 10px 0"><img src="/assets/groot denken 4.jpg"/></div>
 
-De andere twee hadden er beduidend minder moeite mee, radio’s, speelgoedhuizen en een keuken werden aangesleept. De laatste, de kleindenkende lieverd, kwam uiteindelijk met een pratende pop aangelopen. <div style="font-size:80%;font-style:italic">Ik ben Ernie, ik ben heel moe, ik moet een slaapje doen.</div>En na het slaapje zei hij:<div style="font-size:80%;font-style:italic"> ik voel me fantastisch… </div> En zo voelde ik mij ook!
+De andere twee hadden er beduidend minder moeite mee, radio’s, speelgoedhuizen en een keuken werden aangesleept. De laatste, de kleindenkende lieverd, kwam uiteindelijk met een pratende pop aangelopen.
+<div style="font-size:80%;font-style:italic">Ik ben Ernie, ik ben heel moe, ik moet een slaapje doen.</div>
+En na het slaapje zei hij:
+<div style="font-size:80%;font-style:italic">
+ik voel me fantastisch…
+</div>
+En zo voelde ik mij ook!
 
 Ze hebben wel een uur door de speelgoedwinkel gelopen. Bepakt en bezakt bracht ik tenslotte de buit naar de kassa.
 
 ‘Jullie pakken het toch wel in hè…?’, zei ik aarzelend. Het winkelmeisje dat naar het magazijn was geroepen kwam er juist bij staan, keek me aan en zei, ‘Dat wordt mijn klusje.’ En gaf mij een knipoog.
 
-Nu liep ik samen met de kinderen nog een keer door de winkel, ze mochten van mij een kadootje uitzoeken, een klein kadootje, omdat ze Sint zo goed geholpen hadden. Dus liepen we richting de scheetzakken en bellenblazers. Tegen de tijd dat ze eindelijk hun keuze hadden gemaakt, waren de kadootjes voor het Sinterklaasfeest ingepakt. Ik rekende af, hing de tassen aan de buggie en ging tevreden naar huis. <div style="font-size:80%;font-style:bold">I love it when a plan comes together.</div>
+Nu liep ik samen met de kinderen nog een keer door de winkel, ze mochten van mij een kadootje uitzoeken, een klein kadootje, omdat ze Sint zo goed geholpen hadden. Dus liepen we richting de scheetzakken en bellenblazers. Tegen de tijd dat ze eindelijk hun keuze hadden gemaakt, waren de kadootjes voor het Sinterklaasfeest ingepakt. Ik rekende af, hing de tassen aan de buggie en ging tevreden naar huis.
+<div style="font-size:80%;font-style:bold">I love it when a plan comes together.</div>
 
 <div style="margin:0 10px 10px 0"><img src="/assets/Carina - profiel 2019.jpg" alt="Carina Noordeloos" width="100"/></div>
