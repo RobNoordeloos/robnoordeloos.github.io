@@ -42,15 +42,15 @@ Have fun!
 <div style="font-size:80%;">
 
 De regen kwam met bakken uit de hemel. Een felle pijnscheut joeg door mijn lichaam toen mijn knieën de grond raakten. Tussen de wazige weerspiegeling van neonletters en lantaarns zag ik mezelf in het natte wegdek. Mijn rechterhand omklemde het mes. De gebeurtenissen van die dag schoten in een flits voorbij. Sirenes klonken steeds luider en kwamen dichterbij. Toen werd alles zwart om me heen en viel ik flauw.
-<br>
+<br><br>
 Voor de vijfde keer in korte tijd las ik het verfrommelde briefje dat ik in mijn jaszak had gestopt. De taxi’s reden af en aan. Het was warm. Een chauffeur, met zijn arm uit het raam van zijn roestige bolide, riep naar mij.
-<br>
+<br><br>
 ‘¿A dónde vas?’ Zijn donkere ogen keken mij vrijpostig en vragend aan.
-<br>
+<br><br>
 ‘No comprendo.’ Mijn hakken klikten op het trottoir terwijl ik naar de taxi liep. Voor de zoveelste keer pakte ik het briefje. Ik liet het hem lezen en zag dat hij het adres herkende. Een zoete scherpe geur vanuit de taxi drong zich aan mij op.
-<br>
+<br><br>
 De taxichauffeur, een kleine gezette man, stapte uit en opende de autodeur.
-<br>
+<br><br>
 Bloemenkiosken, fonteinen en terrassen flitsten langs. Ik probeerde de omgeving in me op te nemen. Het wemelde van de toeristen, tekenaars, fakirs, dansers, levende standbeelden, goochelaars en natuurlijk de lokale bevolking. Hét beeld van de Ramblas.
 </div>
 <br>
