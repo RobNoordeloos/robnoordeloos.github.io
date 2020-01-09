@@ -1,12 +1,12 @@
 ---
 layout: post
-title:  "plankenkoorst"
+title:  "plankenkoorts"
 date:   2018-06-01 12:00:01 +0100
 categories: carina blogs
 author: Carina Noordeloos
 permalink: /:categories/:title.html
 ---
-<div style="margin:0 10px 10px 0"><img src="/assets/plankenkoorst 1.jpg"/></div>
+<div style="margin:0 10px 10px 0"><img src="/assets/plankenkoorts 1.jpg"/></div>
 
 ‘Het klinkt gek, maar doe alsof je in je lingerie staat. Voel je kwetsbaar!’
 Doe normaal, meen je dat nou echt?
@@ -19,7 +19,7 @@ Twintig minuten later proberen we het nog maar eens een keer. Onder de gedimde l
 
 Al wekenlang ben ik aan het repeteren om een drietal liedjes onder de knie te krijgen, met een optreden in het verschiet. Samen met een handvol muzikanten geven we een opvoering voor een klein en intiem publiek, op uitnodiging. Dat wordt dan de eerste keer dat ik mezelf op piano zal begeleiden. Het moet dus goed zijn. Zingen kan ik ook wel een beetje, het gaat om de combi zullen we maar zeggen. Mijn vingers glijden moeiteloos over de toetsen van de piano en de woorden kan ik intussen zonder bladmuziek zingen. Er ontbreekt echter wel iets. Ik kan het juiste gevoel, de gevoelige pianosnaar, niet vinden. Ik denk terug aan de opnamestudio en aan de opnames, aan wijn en lingerie, aan kwetsbaar wezen. Maar om elke keer maar weer een fles wijn naar binnen te gieten en beschonken de bühne op te stappen lijkt me niet bepaald een goed idee. Eén van de nummers, The Rose van Bette Midler, zingen we met z’n tweeën.
 
-<div style="margin:0 10px 10px 0"><img src="/assets/plankenkoorst 2.jpg"/></div>
+<div style="margin:0 10px 10px 0"><img src="/assets/plankenkoorts 2.jpg"/></div>
 
 Ik pak de bladmuziek erbij en kijk of ik de woorden kan koppelen aan gebeurtenissen uit mijn eigen leven.
 
@@ -42,10 +42,10 @@ De volgende dag ligt er een envelop op mijn deurmat. Ik open deze en schrik van 
 
 Het is een droevig maar mooi en eervol afscheid. Het laatste liedje dat tijdens de bijeenkomst wordt afgespeeld is The Rose van Bette Midler, vertaald naar het Nederlands. Dat raakt me meer dan me lief is, zo mooi.Toeval? Voordat ik weer in de auto stap geef ik Patries nog een innige knuffel, zoals vriendinnen dat doen.
 
-<div style="margin:0 10px 10px 0"><img src="/assets/plankenkoorst 3.jpg"/></div>
+<div style="margin:0 10px 10px 0"><img src="/assets/plankenkoorts 3.jpg"/></div>
 
 Op de weg terug geef ik hier en daar iets meer gas, want ik wil mijn maatje met wie ik de nummers heb voorbereid niet in de steek laten. Ruim op tijd arriveer ik bij het zaaltje waar de optredens plaatsvinden. Haast ongemerkt schuifel ik naar binnen en maak hier en daar oogcontact. Nog geen kwartier later neem ik plaats achter de piano. Eerst een aantal instrumentale nummers, mijn vingers trillen een beetje maar weten de juiste toetsen gelukkig te vinden. Daarna The Rose, het begin is lekker. En dan... Bij het tweede refrein lijkt er een snik in mijn stem te komen, ik voel dat ik de controle verlies, ik schiet vol en dan biggelen de tranen over mijn wangen. Ik speel door, zing door, de woorden snijden dwars door mijn ziel. Tussen de tranen door kijk ik mijn maatje aan. Hij knikt bemoedigend, ik ga door tot de laatste wegstervende klanken. Dan sta ik op en knik bescheiden naar het publiek, maar ik sta helemaal te shaken en verlies de controle over mijn lichaam. Wat volgt is een lang en indrukwekkend applaus. Hand in hand lopen we tussen het publiek door naar achteren en nemen plaats op onze stoelen, waar ik nog zeker tien minuten lang mijn betraande ogen stijf dichthoud. Straks misschien nog een laatste glas rode wijn, maar dan vanwege een andere, veel diepere emotie.
 
-<div style="margin:0 10px 10px 0"><img src="/assets/plankenkoorst 4.jpg"/></div>
+<div style="margin:0 10px 10px 0"><img src="/assets/plankenkoorts 4.jpg"/></div>
 
 <div style="margin:0 10px 10px 0"><img src="/assets/Carina - profiel 2019.jpg" alt="Carina Noordeloos" width="100"/></div>
