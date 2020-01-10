@@ -54,7 +54,7 @@ Wat zegt dit over mijzelf? Moet ik het ongemakkelijke gemakkelijk maken, grenzen
 
 Nieuwsgierig geworden naar Geketend Leven en niet vies van (zeer) erotische scenes, dan is dit boek wellicht iets voor jou. De cliffhanger zal je denk ik bijblijven.
 
-Het E-book ‘Geketend Leven’, door Sara Sparkel beslaat maar liefst 345 bladzijden en kost 5,99 euro. Het is te bestellen via bol.com of Kobo: http://bit.ly/2A002Be .
+Het E-book ‘Geketend Leven’, door Sara Sparkel beslaat maar liefst 345 bladzijden en kost 5,99 euro. Het is te bestellen via bol.com of <a href="http://bit.ly/2A002Be">Kobo</a>.
 
 Ik las het boek in één ruk uit, af en toe om me heen kijkend en soms met rode oortjes.
 
