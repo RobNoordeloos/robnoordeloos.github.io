@@ -1,12 +1,12 @@
 ---
 layout: post
-title:  "de grrote kietelaar"
+title:  "de grote kietelaar"
 date:   2018-12-01 12:00:01 +0100
 categories: carina blogs
 author: Carina Noordeloos
 permalink: /:categories/:title.html
 ---
-<div style="margin:0 10px 10px 0"><img src="/assets/de grrote kietelaar 1.jpg"/></div>
+<div style="margin:0 10px 10px 0"><img src="/assets/de grote kietelaar 1.jpg"/></div>
 
 ‘Ready to go!’, reageerde ik enthousiast op de vraag van mijn vriendin.
 
@@ -16,7 +16,7 @@ We gingen met de trein, of dat een retourtje zou worden of een taxi terug was no
 
 Het was december, de kerstsfeer was overal voelbaar door de versieringen in straten en kroegen, dat gaf de stad een romantisch cachet. Nog een stuk of drie vrienden sloten zich later bij ons aan. We zwierven van kroeg naar kroeg. Tot we er in één belandden met live muziek. In een mum van tijd stonden we ons uit te sloven op de dansvloer, we zaten er helemaal in. Drank vloeide rijkelijk en wij vermaakten ons prima.
 
-<div style="margin:0 10px 10px 0"><img src="/assets/de grrote kietelaar 2.jpg"/></div>
+<div style="margin:0 10px 10px 0"><img src="/assets/de grote kietelaar 2.jpg"/></div>
 
 ‘Juf Carina…’. Ik keek om me heen maar zag niet wie dat zei. Even dacht ik dat ik het me verbeeld had.
 
@@ -28,7 +28,7 @@ Ik pakte een barkruk, verrast door de ruk die mijn hoofd naar het verleden maakt
 
 ‘De grote kietelaar’, vertrouwde ik haar geheimzinnig toe.
 
-<div style="margin:0 10px 10px 0"><img src="/assets/de grrote kietelaar 3.jpg"/></div>
+<div style="margin:0 10px 10px 0"><img src="/assets/de grote kietelaar 3.jpg"/></div>
 
 ‘Pas maar op, straks lig jij ook in een scheiding…,’ waarschuwde ze mij en ging door waarmee zij gestopt was, dansen.
 
@@ -40,7 +40,7 @@ Nadat ik opdrachten had gegeven aan mijn groep, pakte ik een limonade kan van he
 
 Of die keer dat we elkaar met pannenkoekenmeel onder gooiden… of toen we… Ach, we haalden verschillende verhalen op en lachten bij de herinnering, die goede oude tijd.
 
-<div style="margin:0 10px 10px 0"><img src="/assets/de grrote kietelaar 4.png"/></div>
+<div style="margin:0 10px 10px 0"><img src="/assets/de grote kietelaar 4.png"/></div>
 
 We namen afscheid. Hij zoende me zachtjes op mijn wang en fluisterde iets in mijn oor, wat mijn vriendin niet ontging.
 
