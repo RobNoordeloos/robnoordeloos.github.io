@@ -1,51 +1,61 @@
 ---
 layout: post
-title:  "de grote kietelaar"
+title:  "rode oortjes"
 date:   2018-12-01 12:00:01 +0100
 categories: carina blogs
 author: Carina Noordeloos
 permalink: /:categories/:title.html
 ---
-<div style="margin:0 10px 10px 0"><img src="/assets/de grote kietelaar 1.jpg"/></div>
+‘Email bericht: ‘Hoi. Ik zie dat je blogt. Vraagje. Lees je ook erotische romans?’
 
-‘Ready to go!’, reageerde ik enthousiast op de vraag van mijn vriendin.
+Ik keek schielijk om me heen, alsof iedereen die om me heen zat aan mij kon zien wat mij gevraagd werd. Zal wel weer spam zijn, dacht ik.
 
-Vriendinnenavond. Een avond uit, zonder de mannen. Al was dat in háár geval niet zo’n probleem, want ze zat midden in een scheiding. Ze kon dus wel een verzetje gebruiken en ik offerde me vrijwillig op. Telefonisch hadden we al even kleding-contact. We gingen voor een rokje. In mijn geval een zwart leren minirokje, hoge laarzen en een doorschijnend topje.
+Één augustus. Het was warm in Nederland toen ik deze nogal hete vraag in mijn postvak vond. In eerste instantie negeerde ik het, maar in mijn achterhoofd bleef een stemmetje nieuwsgierig op mij inpraten.
 
-We gingen met de trein, of dat een retourtje zou worden of een taxi terug was nog maar de vraag. Eerst doken we een restaurant in. Met lege maag was het immers niet verstandig om de kroeg binnen te stappen. We hadden heel wat bij te praten, maar hadden ook zin om de bloemetjes lekker buiten te zetten.
+Vijf augustus. Het stemmetje in mij bleef maar om aandacht vragen, tijd voor actie dus.
 
-Het was december, de kerstsfeer was overal voelbaar door de versieringen in straten en kroegen, dat gaf de stad een romantisch cachet. Nog een stuk of drie vrienden sloten zich later bij ons aan. We zwierven van kroeg naar kroeg. Tot we er in één belandden met live muziek. In een mum van tijd stonden we ons uit te sloven op de dansvloer, we zaten er helemaal in. Drank vloeide rijkelijk en wij vermaakten ons prima.
+‘Hoi Sara, ik heb ze wel gelezen… <i>(leugenaar! roept de stem meteen)</i>… mag ik vragen waarom je dat vraagt?’
 
-<div style="margin:0 10px 10px 0"><img src="/assets/de grote kietelaar 2.jpg"/></div>
+Of ik het boek dat zij geschreven heeft wil lezen en of ik daar dan een blog over wil schrijven. Ja, dat wil ik wel, maar ik garandeer niets, ik wil het eerst lezen en dan kijken of het mij aanspreekt. Stuur maar door.
 
-‘Juf Carina…’. Ik keek om me heen maar zag niet wie dat zei. Even dacht ik dat ik het me verbeeld had.
+En zo begint mijn contact met mijn mysterie fan. 'Mysterie fan', hoor ik je denken? Wie is zij? Misschien is zij wel een hij, want schrijft onder een pseudoniem, namelijk als Sara Sparkel. Bekt overigens wel lekker.
 
-‘U…hum, juf Carina!’ Een tikje op mijn schouders deed me omdraaien. Daar stond een knappe vent, strak in pak, met een glimlach van oor tot oor. Zijn haren keurig in model. En die ogen, die herkende ik vrijwel meteen. Die ondeugende glans was nog steeds niet verdwenen. Op dat moment leek alles om ons heen te vervagen. Waarschijnlijk heb ik hem een tijdje met mijn mond open aan staan staren, terwijl hij toch echt met mij probeerde te praten. Muziek schalde door de speakers.
+‘Maar, waarom ik? Er zijn zoveel bloggers.’
 
-Ik pakte een barkruk, verrast door de ruk die mijn hoofd naar het verleden maakte. Ik zag hem weer op het podium staan, op school, onhandig dansend op een liedje van Dikkertje Dap. Toen al een erg guitig knaapje om te zien. Dikke klodders gel in zijn haar, wat typerend was bij jongetjes uit groep vier-vijf. Wat was hij gegroeid, volwassen geworden, hij moest intussen een jaar of dertig zijn. Al snel drongen zich meer beelden op van de klas waarin hij zat. Ook begonnen we anekdotes uit te wisselen.
+<i>‘Ik was je toevallig op facebook tegengekomen en heb een aantal leuke blog van je gelezen. Je schrijft uit je hart en daar hou ik van. Als ik in je blog lees ben ik direct mee in wat je zegt, dat is talent. Ik was heel blij dat je interesse had in mijn boek en hoop dat je ervan genoten hebt.’</i>
 
-‘Wie is die hunk?’ vroeg mijn vriendin even later aan mij.
+Nou, zeg daar dan maar eens nee tegen. Enigszins gevleid door haar woorden begin ik aan de opdracht.
 
-‘De grote kietelaar’, vertrouwde ik haar geheimzinnig toe.
+<div style="margin:0 10px 10px 0"><img src="/assets/rode oortjes 1.jpg"/></div>
 
-<div style="margin:0 10px 10px 0"><img src="/assets/de grote kietelaar 3.jpg"/></div>
+<i><b>Geketend Leven</b> gaat over de over de eenentwintigjarige Valerie Grind. Zij onderneemt een lange reis van Californië naar New York. Valerie wil een nieuw leven beginnen om haar duistere verleden achter te laten. Als haar auto het onderweg begeeft ontmoet zij de arrogante en mysterieuze Lucas. Hij is gewend altijd zijn zin te krijgen. De twee voelen zich onmiddellijk tot elkaar aangetrokken, maar de controle verliezen is voor beiden onmogelijk. Hun magnetische aantrekkingskracht zorgt ervoor dat zij hun grenzen willen verleggen, maar zijn fantasieën zijn haar nachtmerries.</i>
 
-‘Pas maar op, straks lig jij ook in een scheiding…,’ waarschuwde ze mij en ging door waarmee zij gestopt was, dansen.
+Om meer over de schrijfster Sara en haar drijfveren te weten te komen besluit ik haar een interview af te nemen. Hieronder een beknopte samenvatting daarvan.
 
-‘Weet u nog dat u met een kan water naar groep acht liep? En wij er achteraan?’
+Sara Sparkel is een verzonnen naam. Zij is 37, houdt van schrijven en geniet van de simpele dingen in het leven. Omschrijft zichzelf als een naïeve dromer. Leest zelf niet veel, heeft geen favoriete schrijver/ster, is vooral fan van actiefilms. In de belangstelling staan wil ze niet, zij hoeft niet herkend te worden, het gaat puur om het schrijven. Een foto van haar publiceren is taboe.
 
-Ja, dat herinnerde ik mij nog als de dag van gisteren. Het was prachtig weer, de zon prikte op onze huid. Speelkwartier. Een prettig gestoorde collega gaf indertijd les aan groep acht en had de kinderen zover gekregen om ook juf – lees mij – nat te gooien. En dat gebeurde! Toen de zoemer klonk als einde van de pauze, liep ik als een verzopen katje terug de school in. Uiteraard zinde ik op wraak.
+Ik probeer te begrijpen waarom zij onder een pseudoniem schrijft. Dat zij graag schrijft en niet in de belangstelling wil staan vind ik een te gemakkelijk antwoord. Ik vraag door en zoek naar een diepere reden. Uiteindelijk besluit zij zich bloot te geven.
 
-Nadat ik opdrachten had gegeven aan mijn groep, pakte ik een limonade kan van het aanrecht en zette de kraan open. Toen die vol was met water zei ik tegen de kinderen dat ik even weg moest. Voorzichtig opende ik de deur en sloop over de gang in de richting van groep acht, de kan met water achter mijn rug … Met groep vier-vijf in mijn kielzog, zij voelden de sensatie in de lucht en schuifelden met z’n allen mee over de gang. Ik opende de deur van groep acht, waar mijn collega druk bezig was met aardrijkskunde termen op het schoolbord. Hij draaide zich naar mij toe en ik zag zijn ogen die van mij naar de kan water rolden. Hij bedacht zich geen moment en sprong pardoes op een paar tafels, waaraan leerlingen zaten te werken en de atlassen op lagen uitgespreid. Haha, hoor ik hem nog grinniken, mij pak je niet. Maar jong en onbezonnen als ik was gooide ik de kan water met volle kracht in zijn richting. Hij drijfnat, maar de atlassen ook, voor altijd 3D! We renden met z’n allen terug naar onze eigen klas, heel snel en met veel kabaal. Later heb ik ‘m nog wel even geknepen, wat had ik gedaan? Maar, wat hadden we toch vaak lol.
+Sarah is een jonge moeder met twee kindjes. Zij begon te schrijven toen zij in een depressieve periode zat. Zij is een enorme denker die veel tegenslagen op haar pad heeft gehad. Sara stopt veel van haar persoonlijke ervaringen in het verhaal. Zo is de manier waarop Valerie (een van de hoofdpersonen van haar verhaal) met haar demonen omgaat dezelfde als die Sara toepast, namelijk situaties bevechten en zich afsluiten van emoties. De heftige erotische scènes zijn verzonnen. Het schrijven heeft haar enorm geholpen om zich beter te voelen, al denkt zij ook dat het een soort vluchten is. Zij houdt net als Valerie niet van aandacht. Daarnaast zijn Sara’s ouders vrij katholiek en wil zij hun geen hartaanval bezorgen. Het is namelijk geen zedig boekje, maar het is wel een verhaal dat met passie geschreven is.
 
-Of die keer dat we elkaar met pannenkoekenmeel onder gooiden… of toen we… Ach, we haalden verschillende verhalen op en lachten bij de herinnering, die goede oude tijd.
+<div style="margin:0 10px 10px 0"><img src="/assets/rode oortjes 2.jpg"/></div>
 
-<div style="margin:0 10px 10px 0"><img src="/assets/de grote kietelaar 4.png"/></div>
+Natuurlijk brandt mij de vraag op de lippen waar het verschil voor haar ligt tussen erotiek en porno. Ik ken namelijk de uitspraak: bij erotiek gebruik je alleen het veertje, bij porno neem je meteen de hele kip.
 
-We namen afscheid. Hij zoende me zachtjes op mijn wang en fluisterde iets in mijn oor, wat mijn vriendin niet ontging.
+‘Porno is pats boem en klaar, zonder verhaallijn of logica. Zelf ben ik geen porno liefhebber. Erotiek is een intens verhaal waar je het gehele leven van de personages duidelijk kan volgen, de aantrekkingskracht kan voelen met alles wat erbij hoort.’ Aldus Sara.
 
-‘Zo? Gezoend door de grote kietelaar?’ vroeg ze afkeurend.
+Af en toe schrik ik van de schuttingtaal die zij in haar boek hanteert en snap daardoor dat ze anoniem wil blijven. Maar wanneer wordt iets plat of ordinair? Wat is prikkelend?
 
-Ik lachte luid en legde uit: ‘Dat was één van mijn oud-leerlingen. Ravotten, achter elkaar aan rennen, dat deden die jongens op die leeftijd altijd, alsof hun leven ervan af hing. En hij, hij rende dan met van die klauwende handjes achter zijn vrienden aan, die alle kanten uit stoven, en riep dan vervaarlijk: “Kijk uit. Hier komt de grote kietelaar!’
+Is dit een les die op mijn pad kwam? Moet ik in mijn boek dat ik aan het schrijven ben misschien ook iets meer het randje zoeken, zodat het gaat schuren? Bedoelden ze dat op de schrijversvakschool? Waar een klasgenoot mij de tip gaf dit soort scènes vooral ‘s nachts te schrijven vergezeld van de nodige alcohol en/of een pilletje. Ook Sara schrijft vooral ’s nachts, omdat haar jonge kinderen overdag alle aandacht vragen. Ook aan haar stel ik de vraag hoe zij in de juiste stemming komt om al seksscènes te schrijven. Dat gaat gewoon vanzelf, antwoordt ze. Al zullen haar guilty pleasures, naast wijn-chocolade-slagroom, haar daarbij wellicht een dienst bewijzen.
+
+<div style="margin:0 10px 10px 0"><img src="/assets/rode oortjes 3.jpg"/></div>
+
+Wat zegt dit over mijzelf? Moet ik het ongemakkelijke gemakkelijk maken, grenzen verleggen, shockeren? Of is het toch meer mijn stijl om een en ander meer aan de verbeelding over te laten in plaats van het plat beschrijven van situaties?
+
+Nieuwsgierig geworden naar Geketend Leven en niet vies van (zeer) erotische scenes, dan is dit boek wellicht iets voor jou. De cliffhanger zal je denk ik bijblijven.
+
+Het E-book ‘Geketend Leven’, door Sara Sparkel beslaat maar liefst 345 bladzijden en kost 5,99 euro. Het is te bestellen via bol.com of Kobo: http://bit.ly/2A002Be .
+
+Ik las het boek in één ruk uit, af en toe om me heen kijkend en soms met rode oortjes.
 
 <div style="margin:0 10px 10px 0"><img src="/assets/Carina - profiel 2019.jpg" alt="Carina Noordeloos" width="100"/></div>
