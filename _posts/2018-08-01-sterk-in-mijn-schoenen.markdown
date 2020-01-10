@@ -8,7 +8,7 @@ permalink: /:categories/:title.html
 ---
 <div style="margin:0 10px 10px 0"><img src="/assets/sterk in mijn schoenen 1.jpg"/></div>
 
-<font size="500%">X</font>Daar stond ik, hijgend en puffend in mijn hardloopkleding. En ik had me een dorst! Oef, ik kon wel een hele fles water op. Mijn benen voelden zwaar. Het zweet droop in straaltjes over mijn rug, alles plakte.
+Daar stond ik, hijgend en puffend in mijn hardloopkleding. Ik had me een dorst! Oef, ik kon wel een hele fles water op. Mijn benen voelden zwaar. Het zweet droop in straaltjes over mijn rug, alles plakte.
 
 Ik drukte mijn neus tegen de bos bloemen die ik aan de finish had gekregen en rook met gesloten ogen de geur van de fresia’s op. Heerlijk! Nou, waar blijft hij nou? Hij zou me toch opwachten aan het einde van de straat? Ik ijsbeerde ongeduldig op de stoep, schudde mijn warme voeten los en hield intussen alle mensen in de omtrek nauwlettend in de gaten. Nog steeds geen teken van mijn vriend. We hadden hier toch afgesproken, op deze plek? Of … was hij alsnog naar de parkeerplaats gegaan waar de bus stond te wachten? Het duurde nu al met al wel heel erg lang. Die busparkeerplaats was maar een paar honderd meter verder, dus ik nam de gok en liep erheen.
 
