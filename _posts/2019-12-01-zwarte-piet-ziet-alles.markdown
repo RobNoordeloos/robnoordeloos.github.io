@@ -1,61 +1,47 @@
 ---
 layout: post
-title:  "rode oortjes"
-date:   2018-12-01 12:00:01 +0100
+title:  "alwetend"
+date:   2019-12-01 12:00:01 +0100
 categories: carina blogs
 author: Carina Noordeloos
 permalink: /:categories/:title.html
 ---
-‘Email bericht: ‘Hoi. Ik zie dat je blogt. Vraagje. Lees je ook erotische romans?’
+<div style="margin:0 10px 10px 0"><img src="/assets/alwetend 1.jpg"/></div>
 
-Ik keek schielijk om me heen, alsof iedereen die om me heen zat aan mij kon zien wat mij gevraagd werd. Zal wel weer spam zijn, dacht ik.
+Ik had ze gevraagd om hun schoentjes in het klaslokaal onder de vensterbank te zetten. Uit het zicht. Want stel je voor dat toevallig voorbijlopende kindertjes mij er mee zouden zien “rommelen”. Dat zou de pret bederven, toch? De kindjes in de groep drie klas hadden gehoor gegeven aan mijn verzoek, waardoor ze een dag later allemaal werden getrakteerd op een kleurige UV-pen met onzichtbare inkt. Paars, groen, geel, rood. Het hele arsenaal was in het geniep over de schoenen verdeeld, door een onzichtbare Zwarte Piet…
 
-Één augustus. Het was warm in Nederland toen ik deze nogal hete vraag in mijn postvak vond. In eerste instantie negeerde ik het, maar in mijn achterhoofd bleef een stemmetje nieuwsgierig op mij inpraten.
+<div style="margin:0 10px 10px 0"><img src="/assets/alwetend 2.jpg"/></div>
 
-Vijf augustus. Het stemmetje in mij bleef maar om aandacht vragen, tijd voor actie dus.
+Die morgen was ik, zoals gewoonlijk, ruim op tijd op school en had daardoor voldoende gelegenheid om de gevulde schoentjes uit te stallen naast mijn tafel. Nog snel even een toepasselijk sinterklaasliedje van het internet geplukt en op digi-bord geplaatst, daar kwamen de eerste kindjes al binnen! Oef, net op tijd! Zij die niet konden wachten pakten hun schoentje al beet en keken erin. ‘Nee schat, dat doen we samen’, zei ik. ‘Ga eerst maar op je plaats zitten, als iedereen er is gaan we beginnen’.
 
-‘Hoi Sara, ik heb ze wel gelezen… <i>(leugenaar! roept de stem meteen)</i>… mag ik vragen waarom je dat vraagt?’
+Om half negen verlieten de laatste ouders het lokaal, deed ik de deur dicht en startten we ons dagelijkse Sinterklaas ritueel. Verhaaltje voorlezen, vragen stellen, liedjes zingen, soms met een dansje. En eindelijk (yep, wachten duurt lang) mochten ze dan hun eigen schoentje pakken. Het kadootje viel meteen in goede aarde. Armen en vingers werden volgekalkt en daarna beschenen met het lampje van de pen… Floep! Daar kwamen de woorden of krabbels tevoorschijn, als door een wonder.
 
-Of ik het boek dat zij geschreven heeft wil lezen en of ik daar dan een blog over wil schrijven. Ja, dat wil ik wel, maar ik garandeer niets, ik wil het eerst lezen en dan kijken of het mij aanspreekt. Stuur maar door.
+<div style="margin:0 10px 10px 0"><img src="/assets/alwetend 3.jpg"/></div>
 
-En zo begint mijn contact met mijn mysterie fan. 'Mysterie fan', hoor ik je denken? Wie is zij? Misschien is zij wel een hij, want schrijft onder een pseudoniem, namelijk als Sara Sparkel. Bekt overigens wel lekker.
+Enthousiasme alom. Met uitzondering van Mourad, die zat stil en bedroefd aan zijn tafel. Ik zag een traantje. Even kijken wat er aan de hand was. Ach gut, zijn lampje deed het niet. Dus wat hij ook deed, bij hem gebeurde niets. Geen betovering van oplichtende letters. Oei. ‘Weet je wat, Mourad? Als jij nou het kadootje van Aïda neemt,’ – zij was vanwege vakantie niet aanwezig die dag – ‘dan zorg ik ervoor dat Sinterklaas haar een ander cadeautje bezorgt’. Nou nee, Aïda’s pen was geel en Mourad had een paarse. Die was veel mooier. Dus hij bleef verder prutsen aan zijn eigen pen-met-zonder-lampje.
 
-‘Maar, waarom ik? Er zijn zoveel bloggers.’
+Omdat ze allemaal eenzelfde soort kado hadden gekregen voorzag ik problemen, dus ik vroeg alle kindjes of ze hun pen goed wilden opbergen in hun etui voordat ze naar buiten gingen, naar het schoolplein. Maar zoals zo vaak gaat er altijd wel iets mis. Want na de pauze kwam Joyeux meteen naar me toe. Haar pen was weg. Verdwenen. Foetsie. Ze had hem op haar tafeltje gelegd, maar was nu nergens meer te vinden.
 
-<i>‘Ik was je toevallig op facebook tegengekomen en heb een aantal leuke blog van je gelezen. Je schrijft uit je hart en daar hou ik van. Als ik in je blog lees ben ik direct mee in wat je zegt, dat is talent. Ik was heel blij dat je interesse had in mijn boek en hoop dat je ervan genoten hebt.’</i>
+<div style="margin:0 10px 10px 0"><img src="/assets/alwetend 4.jpg"/></div>
 
-Nou, zeg daar dan maar eens nee tegen. Enigszins gevleid door haar woorden begin ik aan de opdracht.
+Denk denk denk. Eh… trucje! ‘Oke, klas, vandaag gaan we de lades opruimen. Alles wat er niet in hoort doen we in de prullenbak!’ Dat gaf mij de gelegenheid om zijdelings mee te kijken of wellicht ergens in een lade per ongeluk twee UV-pennen lagen.
 
-<div style="margin:0 10px 10px 0"><img src="/assets/rode oortjes 1.jpg"/></div>
+Helaas. Geen resultaat. Joyeux’ rode pen bleef zoek. Dus nu had ik twee verdrietige kindjes. Mourad met een gemankeerde paarse pen en Joyeux helemaal zonder. Even mijn didactische spitsvondigheid uittesten. Het idee dat mij aangereikt werd door Dana veegde ik trouwens eerst van tafel. Nee, ik ga niet ook alle rugzakjes en luizentassen doorzoeken (ik zat immers niet te wachten op een openbare afstraffing van een zevenjarig kind). ‘Luister allemaal. We gaan een brief schrijven aan Sinterklaas, waarin het raadsel van de verloren pennen wordt uitgelegd. Misschien dat hij daarna een oplossing weet… Wat denken jullie daarvan?’
 
-<i><b>Geketend Leven</b> gaat over de over de eenentwintigjarige Valerie Grind. Zij onderneemt een lange reis van Californië naar New York. Valerie wil een nieuw leven beginnen om haar duistere verleden achter te laten. Als haar auto het onderweg begeeft ontmoet zij de arrogante en mysterieuze Lucas. Hij is gewend altijd zijn zin te krijgen. De twee voelen zich onmiddellijk tot elkaar aangetrokken, maar de controle verliezen is voor beiden onmogelijk. Hun magnetische aantrekkingskracht zorgt ervoor dat zij hun grenzen willen verleggen, maar zijn fantasieën zijn haar nachtmerries.</i>
+‘Of… wacht, nog beter!’ (ploink!… daar kwam mijn idee) ‘Dat hoeft eigenlijk helemaal niet! Want Sint weet immers alles van alle kindjes in Nederland. En zijn Pieten zien ook alles. Dan weet hij vast wel waar de pen gebleven is! Dus ik denk dat als we morgen weer op school komen dat alles op zijn pootjes terecht is gekomen!’
 
-Om meer over de schrijfster Sara en haar drijfveren te weten te komen besluit ik haar een interview af te nemen. Hieronder een beknopte samenvatting daarvan.
+Geniaal, al zeg ik het zelf.
 
-Sara Sparkel is een verzonnen naam. Zij is 37, houdt van schrijven en geniet van de simpele dingen in het leven. Omschrijft zichzelf als een naïeve dromer. Leest zelf niet veel, heeft geen favoriete schrijver/ster, is vooral fan van actiefilms. In de belangstelling staan wil ze niet, zij hoeft niet herkend te worden, het gaat puur om het schrijven. Een foto van haar publiceren is taboe.
+Niet veel later zag ik vanuit mijn ooghoeken een wat vrolijker Mourad. De kleine man had lang genoeg zitten rommelen aan zijn pennetje dat zijn lampje het warempel weer deed! Hij blij, ik blij.
 
-Ik probeer te begrijpen waarom zij onder een pseudoniem schrijft. Dat zij graag schrijft en niet in de belangstelling wil staan vind ik een te gemakkelijk antwoord. Ik vraag door en zoek naar een diepere reden. Uiteindelijk besluit zij zich bloot te geven.
+<div style="margin:0 10px 10px 0"><img src="/assets/alwetend 5.jpg"/></div>
 
-Sarah is een jonge moeder met twee kindjes. Zij begon te schrijven toen zij in een depressieve periode zat. Zij is een enorme denker die veel tegenslagen op haar pad heeft gehad. Sara stopt veel van haar persoonlijke ervaringen in het verhaal. Zo is de manier waarop Valerie (een van de hoofdpersonen van haar verhaal) met haar demonen omgaat dezelfde als die Sara toepast, namelijk situaties bevechten en zich afsluiten van emoties. De heftige erotische scènes zijn verzonnen. Het schrijven heeft haar enorm geholpen om zich beter te voelen, al denkt zij ook dat het een soort vluchten is. Zij houdt net als Valerie niet van aandacht. Daarnaast zijn Sara’s ouders vrij katholiek en wil zij hun geen hartaanval bezorgen. Het is namelijk geen zedig boekje, maar het is wel een verhaal dat met passie geschreven is.
+Om drie uur die middag stond ik de kindjes en hun ouders uit te zwaaien bij de hoofdingang. Komt kleine Mourad roepend naar me toe. ‘Juf! Juf! Ik heb de pen van Joyeux gevonden! Hier!’ In zijn hand een rode pen.
 
-<div style="margin:0 10px 10px 0"><img src="/assets/rode oortjes 2.jpg"/></div>
+‘Goh, lieverd. Wat goed van jou zeg, waar lag hij?’ Toen ik met Mourad terug naar de klas liep wees hij een beetje dralend en zoekend met zijn ogen pardoes naar een willekeurig plekje in de gemeenschapsruimte. ‘Daar! Daar vond ik hem!’
 
-Natuurlijk brandt mij de vraag op de lippen waar het verschil voor haar ligt tussen erotiek en porno. Ik ken namelijk de uitspraak: bij erotiek gebruik je alleen het veertje, bij porno neem je meteen de hele kip.
+Goh, laten we die dag nou helemaal niet in de gemeenschapsruimte zijn geweest…
 
-‘Porno is pats boem en klaar, zonder verhaallijn of logica. Zelf ben ik geen porno liefhebber. Erotiek is een intens verhaal waar je het gehele leven van de personages duidelijk kan volgen, de aantrekkingskracht kan voelen met alles wat erbij hoort.’ Aldus Sara.
-
-Af en toe schrik ik van de schuttingtaal die zij in haar boek hanteert en snap daardoor dat ze anoniem wil blijven. Maar wanneer wordt iets plat of ordinair? Wat is prikkelend?
-
-Is dit een les die op mijn pad kwam? Moet ik in mijn boek dat ik aan het schrijven ben misschien ook iets meer het randje zoeken, zodat het gaat schuren? Bedoelden ze dat op de schrijversvakschool? Waar een klasgenoot mij de tip gaf dit soort scènes vooral ‘s nachts te schrijven vergezeld van de nodige alcohol en/of een pilletje. Ook Sara schrijft vooral ’s nachts, omdat haar jonge kinderen overdag alle aandacht vragen. Ook aan haar stel ik de vraag hoe zij in de juiste stemming komt om al seksscènes te schrijven. Dat gaat gewoon vanzelf, antwoordt ze. Al zullen haar guilty pleasures, naast wijn-chocolade-slagroom, haar daarbij wellicht een dienst bewijzen.
-
-<div style="margin:0 10px 10px 0"><img src="/assets/rode oortjes 3.jpg"/></div>
-
-Wat zegt dit over mijzelf? Moet ik het ongemakkelijke gemakkelijk maken, grenzen verleggen, shockeren? Of is het toch meer mijn stijl om een en ander meer aan de verbeelding over te laten in plaats van het plat beschrijven van situaties?
-
-Nieuwsgierig geworden naar Geketend Leven en niet vies van (zeer) erotische scenes, dan is dit boek wellicht iets voor jou. De cliffhanger zal je denk ik bijblijven.
-
-Het E-book ‘Geketend Leven’, door Sara Sparkel beslaat maar liefst 345 bladzijden en kost 5,99 euro. Het is te bestellen via bol.com of <a href="http://bit.ly/2A002Be">Kobo</a>.
-
-Ik las het boek in één ruk uit, af en toe om me heen kijkend en soms met rode oortjes.
+Zwarte Piet ziet alles.
 
 <div style="margin:0 10px 10px 0"><img src="/assets/Carina - profiel 2019.jpg" alt="Carina Noordeloos" width="100"/></div>
