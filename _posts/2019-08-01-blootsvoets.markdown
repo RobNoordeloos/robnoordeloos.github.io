@@ -6,7 +6,7 @@ categories: carina blogs
 author: Carina Noordeloos
 permalink: /:categories/:title.html
 ---
-<div><font size="+10">I</font>k liep naar de rand van de hoge duikplank en keek naar beneden. Ik probeerde de plank onder mij te laten veren door mijn knieën te buigen en daarna te strekken. De plank gaf echter geen krimp, er zat geen beweging in. Ik was nog jong, niet al te zwaar en gewoon niet sterk genoeg.</div>
+<div><font size="750%">I</font>k liep naar de rand van de hoge duikplank en keek naar beneden. Ik probeerde de plank onder mij te laten veren door mijn knieën te buigen en daarna te strekken. De plank gaf echter geen krimp, er zat geen beweging in. Ik was nog jong, niet al te zwaar en gewoon niet sterk genoeg.</div>
 
 <div style="float:left;margin:0 10px 10px 0"><img src="/assets/blootvoets 1.jpg"/></div>
 
