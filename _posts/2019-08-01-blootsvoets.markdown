@@ -8,7 +8,7 @@ permalink: /:categories/:title.html
 ---
 Ik liep naar de rand van de hoge duikplank en keek naar beneden. Ik probeerde de plank onder mij te laten veren door mijn knieën te buigen en daarna te strekken. De plank gaf echter geen krimp, er zat geen beweging in. Ik was nog jong, niet al te zwaar en gewoon niet sterk genoeg.
 
-<div style="margin:0 10px 10px 0"><img src="/assets/blootvoets 1.jpg"/></div>
+<div style="float:left;margin:0 10px 10px 0"><img src="/assets/blootvoets 1.jpg"/></div>
 
 Vroeger ging ik vaak naar het zwembad, minstens twee keer per week, ik vond het heerlijk om te zwemmen. Die middag zat ik op een gegeven moment met natte haren op de rand van het zwembad, mijn benen in het water. Mijn blik gericht op de hoge duikplank want daar gebeurde het.
 
